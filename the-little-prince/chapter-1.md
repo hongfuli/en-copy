@@ -4,7 +4,7 @@ Once when I was six years old I saw a magnificent picture in a book, called `Tru
 
 In the book it said:"Boa constrictors swallow their prey whole, without chewing it. After that they are not able to move, and they sleep through the six months that they need for digestion."
 
-I pondered deeply, then, over the adventures of the jungle. And after some work with colored pencil I successed in making my first drawing. My Drawing Number One. It looked like this: [Image]
+I pondered deeply, then, over the adventures of the jungle. And after some work with colored pencil I succeeded in making my first drawing. My Drawing Number One. It looked like this: [Image]
 
 I showed my masterpiece to the grown-ups, and asked them whether the drawing frightened them.
 
