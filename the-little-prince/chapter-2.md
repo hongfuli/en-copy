@@ -22,11 +22,11 @@ But my drawing is certainly very much less charming than it's model.
 That, however, is not my fault.
 The grown-ups discouraged me in my painter's career when I was six years old, and I never learned to draw anything, except boas from the outside and boas from the inside.
 
-Now i stared at this sudden apparition with my eyes starting out of my head in astonishment.
+Now I stared at this sudden apparition with my eyes starting out of my head in astonishment.
 Remember, I had crashed in the desert a thousand miles from any inhabited region.
 And yet my little man seemed neither to be straying uncertainly among the sand, nor to be fainting from fatigue, or hunger, or thirst, or fear.
 Nothing about him gave me any suggestion of a child lost in middle of the desert, a thousand miles from any human habitation.
-When at last I was able to speak, Isaid to him:
+When at last I was able to speak, I said to him:
 
 "But - what are you doing here?"
 
@@ -34,7 +34,7 @@ And in answer he repeated, very slowly, as if he were speaking of a matter of gr
 
 "If you please - draw me a sheep ..."
 
-When a mystery is too overpowering, one dare not disobey. Absurd as it seem to me, a thousand miles from any human habitation and in danger of death, I took out of my pocket a sheet of paper and my fountain-pen.
+When a mystery is too overpowering, one dare not disobey. Absurd as it might seem to me, a thousand miles from any human habitation and in danger of death, I took out of my pocket a sheet of paper and my fountain-pen.
 But then I remembered how my studies had been concentrated on geography, history, arithmetic, and grammer, and I told the little chap (a little crossly, too) that I did not known how to draw. He answered me:
 
 That doesn't matter. Draw me a sheep ..."
@@ -42,7 +42,7 @@ That doesn't matter. Draw me a sheep ..."
 But I had never drawn a sheep. So I drew for him one of the two pictures I had drawn so often. It was that of the boa constrictor from the outside.
 And I was astounded to hear the little fellow greet it with,
 
-"No, no, no! I do not want an elephant inside a boa constrictor. A boa constrictor is a very dangerous creature, and an elephant is very combersome. Where I live, everything is very small. What I need is a sheep. Draw me a sheep."
+"No, no, no! I do not want an elephant inside a boa constrictor. A boa constrictor is a very dangerous creature, and an elephant is very cumbersome. Where I live, everything is very small. What I need is a sheep. Draw me a sheep."
 
 So then I made a drawing.
 
@@ -66,7 +66,7 @@ And I threw out an explanation with it:
 
 "This is only his box. The sheep you asked for is inside."
 
-I was very suprised to see a light break over the face of my young judge:
+I was very surprised to see a light break over the face of my young judge:
 
 "That is exactly the way i wanted it! Do you think that this sheep will have to have a great deal of grass?"
 
@@ -74,11 +74,11 @@ I was very suprised to see a light break over the face of my young judge:
 
 "Because where I live everything is very small ..."
 
-"There will surely be enough grass for him," I said. "It is a very small sheep that I haved given you."
+"There will surely be enough grass for him," I said. "It is a very small sheep that I have given you."
 
 He bent his head over the drawing:
 
-"Not nso small that - Look! He has gone to sleep ..."
+"Not so small that - Look! He has gone to sleep ..."
 
 And that is how I made the acquaintance of the little prince.
 
