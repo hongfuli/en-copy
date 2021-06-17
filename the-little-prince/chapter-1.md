@@ -20,5 +20,5 @@ In the course of this life I have had a great many encounters with a great many 
 
 Whenever I met one of them who seemed to me at all clear-sighted, I tried the experiment of showing him my Drawing Number One, which i have always kept. I would try to find out, so, if this was a person of true understanding. But, whoever it was, he, or she, would always say:"That is a hat."
 
-Then I would never talk to that person abount boa constrictors,or primeval forests,or stars. I would bring myself down to his level. I would talk to him abount bridge, and golf, and politics, and neckties. And the grown-ups would be greatly pleased to have met such a sensible man.
+Then I would never talk to that person about boa constrictors,or primeval forests,or stars. I would bring myself down to his level. I would talk to him about bridge, and golf, and politics, and neckties. And the grown-ups would be greatly pleased to have met such a sensible man.
 
